@@ -2,9 +2,9 @@
 
 💌
 
-[@𝘤𝘰𝘯𝘴𝘵𝘳𝘻](github.com/constrz) [@𝘙𝘌𝘝𝘌𝘙𝘐𝘚𝘛𝘊𝘈𝘓𝘐𝘊𝘖](github.com/REVERISTCALICO)
+[@𝘤𝘰𝘯𝘴𝘵𝘳𝘻](https://github.com/consrtz) [@𝘙𝘌𝘝𝘌𝘙𝘐𝘚𝘛𝘊𝘈𝘓𝘐𝘊𝘖](https://github.com/REVERISTCALICO)
 
-[@MAR1NAA4](gitHub.com/MAR1NAA4) [@larrycrofts](gitHub.com/larrycrofts) [@boyfIop](gitHub.com/boyfIop) [@VilLeynn](gitHub.com/ViLleynn) [@eleventh](gitHub.com/eleventh) [@s1llyjester](gitHub.com/s1llyjester) [@PINEC0NE-PIE](gitHub.com/PINEC0NE-PIE) [@NER0O9](gitHub.com/NER0O9)
+[@MAR1NAA4](https://github.com/MAR1NAA4) [@larrycrofts](https://github.com/larrycrofts) [@boyfIop](https://github.com/boyfIop) [@VilLeynn](https://github.com/ViLleynn) [@eleventh](https://github.com/eleventh) [@s1llyjester](https://github.com/s1llyjester) [@PINEC0NE-PIE](https://github.com/PINEC0NE-PIE) [@NER0O9](https://github.com/NER0O9)
 
 _____________________________________
 
