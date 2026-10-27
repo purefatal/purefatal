@@ -10,6 +10,9 @@
 
 To the people I remember.. thank you for being kind to me. To those I have forgotten, please forgive me. If you want to be added to the list, feel free to message me if you have my Discord..if not, it's on my Rentry
 
+  </details>
+</div>
+
 <div align="center">
 _____________________________________
 <img width="2296" height="1111" alt="Image" src="https://github.com/user-attachments/assets/95a4c931-c7a1-41ce-bae2-761730f1c64e" />
