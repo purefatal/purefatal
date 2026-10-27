@@ -2,9 +2,9 @@
 
 💌
 
-[@𝘤𝘰𝘯𝘴𝘵𝘳𝘻](https://github.com/consrtz) [@𝘙𝘌𝘝𝘌𝘙𝘐𝘚𝘛𝘊𝘈𝘓𝘐𝘊𝘖](https://github.com/REVERISTCALICO)
+[pesser](https://github.com/consrtz) [kafufu](https://github.com/REVERISTCALICO)
 
-[@MAR1NAA4](https://github.com/MAR1NAA4) [@larrycrofts](https://github.com/larrycrofts) [@boyfIop](https://github.com/boyfIop) [@VilLeynn](https://github.com/ViLleynn) [@eleventh](https://github.com/eIeventh) [@s1llyjester](https://github.com/s1llyjester) [@PINEC0NE-PIE](https://github.com/PINEC0NE-PIE) [@NER0O9](https://github.com/NER0O9)
+[mawin](https://github.com/MAR1NAA4) [sodapop](https://github.com/larrycrofts) [salsa](https://github.com/boyfIop) [leynnotsocute](https://github.com/ViLleynn) [renny](https://github.com/eIeventh) [biru](https://github.com/s1llyjester) [cheeseburber](https://github.com/PINEC0NE-PIE) [bocil kematian](https://github.com/NER0O9)
 
 _____________________________________
 
